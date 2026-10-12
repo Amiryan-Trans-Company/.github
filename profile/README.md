@@ -91,17 +91,23 @@ We aim to continuously improve our standards, expand our capabilities, and devel
 
 # 📱 **Official Channels & Contact**
 
-### **YouTube**
+### 🌐 Website
+[Visit our Website](https://fatemehmiri.github.io/Amir-gamer-2026/)
 
-https://youtube.com/@kin
+### 💼 linkedin 
+[join our Linkedin](https://www.linkedin.com/in/amiryan-trans-company-35957b442?trk=contact-info) 
 
-### 💼 **LinkedIn**
+### Discord
+[Join our Discord Server](hhttpsscord.gg/3qlinkedinnnn)
 
-https://www.linkedin.com/in/fatima-miri
+### YouTube
+[My YouTube Channel](https://youtube.com/@king_single_gojo)
 
-### 🌐 **Official Website**
+### Reddit
+[Visit our Reddit](https://www.reddit.com/user/Main_Oil460/)
 
-https://fatemehmiri.github.io/Amir/
+### mastodon
+[Visit my mastodon](https://mastodon.social/@AkvuevK43)
 
 ### 📧 **Main Company Email**
 
@@ -114,8 +120,6 @@ https://fatemehmiri.github.io/Amir/
 ### 📨 **Additional Support Email**
 
 [rf.miri@gmail.com](mailto:rf.miri@gmail.com)
-
----
 
 # **OUR PRINCIPLES**
 
