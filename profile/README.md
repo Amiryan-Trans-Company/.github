@@ -91,9 +91,6 @@ We aim to continuously improve our standards, expand our capabilities, and devel
 
 # 📱 **Official Channels & Contact**
 
-### 🌐 Website
-[Visit our Website](https://fatemehmiri.github.io/Amir-gamer-2026/)
-
 ### 💼 linkedin 
 [join our Linkedin](https://www.linkedin.com/in/amiryan-trans-company-35957b442?trk=contact-info) 
 
